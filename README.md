@@ -25,7 +25,7 @@
 
 PC好用的电脑梯子：
 
-![image](1.jfif）
+![image](1.jpg）
 
 ---
 
