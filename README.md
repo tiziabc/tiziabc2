@@ -25,7 +25,7 @@
 
 PC好用的电脑梯子：
 
-![image](1.jpg）
+![image](https://github.com/tiziabc/tiziabc2/blob/main/1.jpg）
 
 ---
 
